@@ -1,0 +1,2 @@
+*To make cutting a breeze, try dipping your knife in hot water. Wipe the blade periodically to clean it.
+*Skip the whipped topping and use whipped cream in a can to pipe pretty decorations on top. It's a great way to keep little ones busy.

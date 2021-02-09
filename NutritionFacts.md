@@ -1,0 +1,1 @@
+1 piece: 573 calories, 27g fat (14g saturated fat), 49mg cholesterol, 353mg sodium, 76g carbohydrate (46g sugars, 2g fiber), 6g protein.
